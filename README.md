@@ -1,4 +1,4 @@
-# limpieza-limpieza-imala y exala cada parte de este escrito tienes que leerlos de manera exacta y precisa generango un entendomoento absoluto y dandoce su espacio de refleccion entre  espacio y espacio  
+# limpieza-limpieza- inala y exala cada parte de este escrito tienes que leerlos de manera exacta y precisa generando un entendomoento absoluto y dandoce su espacio de refleccion entre  espacio y espacio  
 Aquí tienes el prompt maestro definitivo en formato C.R.A.F.T. para el tema **IA** (Inteligencia Artificial). Está diseñado para generar respuestas extremadamente profundas, actualizadas, útiles y bien estructuradas sobre cualquier aspecto de la inteligencia artificial cuando lo uses en ChatGPT-4o, o1 o modelos equivalentes.
 
 **Contexto**  
